@@ -1,6 +1,6 @@
 ## Jennifer Debono
 
-[View resume] (https://drive.google.com/file/d/1j1KgP1RbHo8l-msEqyZrCD85FWc1I8Uu/view?usp=drivesdk)
+[View resume](https://drive.google.com/file/d/1j1KgP1RbHo8l-msEqyZrCD85FWc1I8Uu/view?usp=drivesdk)
 
 #### About Me
 
